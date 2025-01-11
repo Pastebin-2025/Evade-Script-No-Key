@@ -8,7 +8,7 @@
 
 ![image](https://github.com/user-attachments/assets/feed5c23-5984-4d84-8c77-9c31e6b14b00)
 
-![image](https://github.com/user-attachments/assets/ccb379d3-1da3-4293-b9b6-c08bb796bc37)
+![hq720](https://github.com/user-attachments/assets/dafd08c9-65c3-4601-b238-506bb961fe0e)
 
 
 ---
